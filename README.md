@@ -1,7 +1,7 @@
 Selamat Datang di DADANGaming!
 
 
-Website TOP up diamonf Mobile Legend paling murah dan trusted. TOP diamond di DADANGaming jaminan winstreak. Rank mu pasti akan melesat jauh. nggak akan minder party bareng teman karna bisa beli skin kece dari diamond TOP UP DADANGaming
+Website TOP up diamond Mobile Legend paling murah dan trusted. TOP diamond di DADANGaming jaminan winstreak. Rank mu pasti akan melesat jauh. nggak akan minder party bareng teman karna bisa beli skin kece dari diamond TOP UP DADANGaming
 
 
 Home: Di halaman ini, Anda akan menemukan tombol "Order" yang menampilkan list harga diamond dan detail pemesanan.
